@@ -1,0 +1,1 @@
+Cursed be the ground for our sake. Both thorns and thistles it shall bring forth for us. For out of the ground we were taken, for the dust we are... and to the dust we shall return.
